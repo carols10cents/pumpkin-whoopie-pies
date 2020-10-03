@@ -6,7 +6,7 @@
 
 ### Ingredients
 
-* 1 smallish pie pumpkin, you want about 1 1/2 c + 1/4 c (separated) pumpkin after roasting
+* 1 smallish pie pumpkin, you want about 1 1/2 c + 1/2 c (separated) pumpkin after roasting
 * 1 c vegetable oil
 * 2 c brown sugar
 * 2 eggs
@@ -27,7 +27,7 @@
   * Place the pumpkin halves cut side down on a pan.
   * Roast until the insides are tender when poked with a fork, depends on the size of the pumpkin. At least 30 min.
   * Remove from oven and allow to cool until you can handle them.
-  * Scoop out of shell with a spoon. Set aside 1/4 c for the filling.
+  * Scoop out of shell with a spoon. Set aside 1/2 c for the filling.
 2. Lightly grease baking sheets.
 3. Combine oil and brown sugar. 
 4. Mix in 1 1/2 c pumpkin and eggs, beat well.
@@ -40,10 +40,10 @@
 
 ### Ingredients
 
-* 4 oz cream cheese at room temperature
-* 1/2 c unsalted butter at room temperature
-* 1/2 c confectioners sugar
-* 1/4 c pumpkin reserved from before
+* 8 oz cream cheese at room temperature
+* 1 c unsalted butter at room temperature
+* 1 c confectioners sugar
+* 1/2 c pumpkin reserved from before
 * pinch of cinnamon to taste
 * pinch of nutmeg to taste
 
